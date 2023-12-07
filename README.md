@@ -3,7 +3,7 @@
 
 ![asta](https://i.pinimg.com/originals/15/37/a7/1537a76c07952bbe69da01b8086a5f00.png)
 *Asta is an orphan raised under the care of a church in Hage after his mother abandons him on the church's doorstep. After turning 15 years old, Asta receives a five-leaf clover grimoire with an Anti Magic devil inside. He joins the Clover Kingdom's Black Bull squad of the Magic Knights. and becomes a 1st Class Senior Magic Knight. and temporarily a Royal Knight*
-# Power
+# Bull Thrust
 *Asta uses this unique energy to nullify magic.Despite not having the ability to use magic, Asta's control over his Anti Magic energy, as well as the very uniqueness of this power itself has earned him the rank of an Arcane Stage mage.After mastering Zetten, Asta's innate control of Anti Magic has improved, to the point of it seeming almost seamless*
 ![ABILITIES](https://static.wikia.nocookie.net/bad1a8ae-379e-4f35-a00c-db9e5a6e3bfd/scale-to-width/755)
 # Demon Slayer Sword Black Divider 
